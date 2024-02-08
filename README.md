@@ -30,8 +30,7 @@ Senior Software Engineer with 6+ years of industry experience. Proficient in Rea
 - POS Systems
 - Excellent Communication & Interpersonal Skills
 - Poised under Pressure
-- Restaurant Operations
 - Fun & Energetic
 
 ## Activities & Interests
-🎭 Theater | 🌱 Environmental Conservation | 🎨 Art | ⛰️ Hiking | ⛷️ Skiing | ✈️ Travel
+🌱 Environmental Conservation | 🎨 Art | ⛰️ Hiking | ✈️ Travel
